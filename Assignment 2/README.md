@@ -1,0 +1,6 @@
+**Q2**
+![image](https://github.com/user-attachments/assets/8320f6e8-b087-42aa-998d-04ab2619e7b3)
+![image](https://github.com/user-attachments/assets/25152c7e-f648-402f-be32-1604b76463ae)
+![image](https://github.com/user-attachments/assets/15e988c6-8b35-4364-9269-11344face367)
+![image](https://github.com/user-attachments/assets/761dbc01-2476-4f91-86b5-321382fe2d6e)
+
